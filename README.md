@@ -7,4 +7,4 @@
 ### - 📫 How to reach me: jonathan.jasso@student.judsonu.edu
 ### - 😄 Pronouns: He/Him
 ### - ⚡ Fun fact: I like legos lol
-
+### - Joke: What do you call a pig that does Karate? Pork CHOP😄
